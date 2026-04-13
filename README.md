@@ -2,8 +2,8 @@
 
 * 🌻 21 yrs
 * 👩‍🦱 Pronouns: Ela/Dela ( She/Her )
-* 💻 Técnica em Desenvolvimento de Sistemas
-* 👩‍💻 ADS IFSP de Hortolândia
+* 💻 Formação técnica em Desenvolvimento de Sistemas
+* 👩‍💻 Cursando ADS no IFSP de Hortolândia
 
 
 
